@@ -1,1 +1,1 @@
-I like to thing about things. Also I execute on those thoughts too,
+I like to think about things. Sometimes I execute on those thoughts too.
